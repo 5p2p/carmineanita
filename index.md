@@ -1,5 +1,6 @@
 ---
 title: il matrimonio di carmine e anita
+layout: page
 ---
 
 # ciao mamma
