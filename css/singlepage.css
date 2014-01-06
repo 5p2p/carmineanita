@@ -28,14 +28,15 @@ header img {
 }
 
 h1, h2, h3 {
-	font-weight: 	300;
+	font-weight: 	500;
 	color: 			#4D4D4D;
 	margin:			0;
+	margin-top:		1.2em;
 	padding:		0;
 }
 h1 { font-size: 3.0em; color: red;}
 h2 { font-size: 2.0em; }
-h3 { font-size: 1.5em; }
+h3 { font-size: 1.4em; }
 
 
 body {
@@ -50,6 +51,20 @@ body {
 #main {
 	width: 			100%;
 	margin:			0 auto;
+}
+
+
+#testo {
+	margin: 0 auto;
+	max-width: 35em;
+	padding: 2em;
+	text-align: left;
+	font-size: 1.1em;
+}
+
+#testo img {
+	width:	100%;
+	max-width:	55em;
 }
 
 #gallery {
@@ -128,9 +143,9 @@ header img {
 	
 }
 
-@media screen and (max-width: 35em) {
+@media screen and (max-width: 40em) {
 
-	h1 { font-size: 1.8em;}
-	h2 { font-size: 1.4em;}
-	h3 { font-size: 1.0em;}
+	h1 { font-size: 2.2em;}
+	h2 { font-size: 1.6em;}
+	h3 { font-size: 1.2em;}
 }
