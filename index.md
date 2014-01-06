@@ -26,6 +26,6 @@ Sed at odio varius lacus sollicitudin porta at vitae orci. Etiam eget est in lac
 Lorem ipsum dolor sit amet, consectetur adipiscing elit. Maecenas non est nisi. Pellentesque tellus enim, consectetur vitae lorem nec, pharetra viverra erat. Praesent vitae eros dictum, pulvinar nisi et, blandit dolor. Vivamus cursus diam ac porttitor convallis. Quisque nunc erat, dictum sed volutpat nec, vulputate at sem. Vestibulum tincidunt dui nec cursus ultrices. Sed vehicula erat urna, vitae gravida nunc cursus quis.
 
 
-![](/img/mappa.png)
+![](img/mappa.png)
 
 Mauris pretium urna at convallis dapibus. Phasellus nec lorem lacinia, imperdiet neque in, malesuada nulla. Cras in vestibulum leo. Duis et dolor nec metus congue tincidunt. Etiam odio nulla, congue et tincidunt id, dignissim non libero. Pellentesque a lobortis enim, pulvinar elementum dolor. Duis rhoncus facilisis viverra. Duis tincidunt enim at sodales pretium. Maecenas id adipiscing est. Aliquam id mattis urna.
