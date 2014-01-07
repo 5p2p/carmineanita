@@ -8,7 +8,7 @@ published: true
 
 ## La nostra testimonianza
 
-**Lorem ipsum dolor sit amet**, consectetur adipiscing elit. Maecenas non est nisi. Pellentesque tellus enim, consectetur vitae lorem nec, pharetra viverra erat. Praesent vitae eros dictum, pulvinar nisi et, blandit dolor. Vivamus cursus diam ac porttitor convallis. Quisque nunc erat, dictum sed volutpat nec, vulputate at sem. Vestibulum tincidunt dui nec cursus ultrices. Sed vehicula erat urna, vitae gravida nunc cursus quis.
+**Lorem ipsum dolor sit amet**, consectetur adipiscing elit. Maecenas non est nisi. Pellentesque tellus enim, consectetur vitae lorem nec, pharetra viverra erat. Praesent vitae eros dictum, pulvinar nisi et, blandit dolor. Vivamus cursus diam ac porttitor convallis. Quisque nunc erat, dictum sed volutpat nec, vulputate at sem. Vestibulum tincidunt dui nec cursus ultrices. Sedd vehicula erat urna, vitae gravida nunc cursus quis.
 
 ### Come ci siamo conosciuti
 
