@@ -1,6 +1,7 @@
 ---
 title: il matrimonio di carmine e anita
 layout: page
+published: true
 ---
 
 # Ci sposiamo!
@@ -23,7 +24,7 @@ Sed at odio varius lacus sollicitudin porta at vitae orci. Etiam eget est in lac
 
 ## Come raggiungerci
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Maecenas non est nisi. Pellentesque tellus enim, consectetur vitae lorem nec, pharetra viverra erat. Praesent vitae eros dictum, pulvinar nisi et, blandit dolor. Vivamus cursus diam ac porttitor convallis. Quisque nunc erat, dictum sed volutpat nec, vulputate at sem. Vestibulum tincidunt dui nec cursus ultrices. Sed vehicula erat urna, vitae gravida nunc cursus quis.
+Lorem ipsum dolor sit amet, consectetur adipiscing elit. Maecenas non est nisi. Pellentesque tellus enim, consectetur vitae lorem nec, pharetra viverra erat. Praesent vitae eros dictum, pulvinar nisi et, blandit dolor. Vivamus cursus diam ac porttitor convallis. Quisque nunc erat, dictum sed volutpat nec, vulputate at sem. Vestibulum tincidunt dui nec cursus ultrices. Sed vehicula erat urna, vitae gravida nunc cursus quis. uhmm.
 
 
 ![](img/mappa.png)
