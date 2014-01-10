@@ -6,13 +6,14 @@ published: true
 
 # Ci sposiamo!
 
-## Il perchè di una scelta.
+## Perchè abbiamo scelto di sposarci?
 
-Parlarvi del nostro cammino e di tutto quello che abbiamo vissuto prima di incontrarci, sarebbe uno straordinario canto di Lode, un dolcissimo Magnificat, ma troppo lungo da descrivere qui. Padre Cornelio, che ci segue, ci ha detto di scrivere tutto. L'abbiamo fatto ed abbiamo riempito mezzo quaderno degli appunti! Non spaventatevi, non vogliamo annoiarvi! ;)
+Il matrimonio è la nostra vocazione! Parlarvi del nostro cammino e di tutto quello che abbiamo vissuto prima di incontrarci, sarebbe uno straordinario canto di Lode, un dolcissimo Magnificat, ma troppo lungo da descrivere qui. Padre Cornelio, che ci segue, ci ha detto di scrivere tutto. L'abbiamo fatto ed abbiamo riempito mezzo quaderno degli appunti! Non spaventatevi, non vogliamo annoiarvi! ;)
 
 Pensiamo di poter riassumere tutta la nostra storia con un bellissimo passo tratto da **La bottega dell'orefice** di Karol Wojtyla:
 
 "A un certo punto i nostri sguardi si sono incontrati – il mio e quello del vecchio Orefice. Ho avuto allora la sensazione che Lui non solo stesse sondando i nostri cuori ma che cercasse anche di versarvi dentro qualcosa.Ci siamo trovati al livello del Suo sguardo, anzi, al livello della Sua vita. La nostra intera esistenza stava davanti a Lui. Il Suo sguardo ci comunicava dei segni ma in quel momento non eravamo in grado di percepirli in tutta la loro pienezza ... — però quei segni riuscirono a penetrare fino nel fondo dei nostri cuori. E ... ci siamo messi in cammino nella direzione indicataci perché questo filo è diventato l'ordito di tutta la nostra vita".
+
 
 
 ## Il perchè di una data.
@@ -20,20 +21,20 @@ Pensiamo di poter riassumere tutta la nostra storia con un bellissimo passo trat
 All'inizio, la scelta della fatidica data è stata quasi "accidentale", ma, dal momento che crediamo che nulla sia veramente avvenuto per caso, scopriamo il significato di questo giorno. il 21 Giugno è il **solstizio d'estate**, quindi il giorno più luminoso dell'anno (come ci ha ricordato la nostra amica Chiara). Si tratta di un giorno considerato sacro in molte religioni e magico per molte culture. Tra il 21 e il 22 Giugno il sole cambia direzione, simboleggiando l'inizio di un nuovo periodo di vita. Il passaggio alla bella stagione era salutato fin dall'antichità con canti e balli. E' il giorno più lungo dell'anno, perchè anche la nostra festa sia la più lunga possibile! Inoltre, in onore di Carmine, un'amica francese, Michele, ci ha detto che lo stesso giorno si celebra la **festa della musica**. Il 21 Giugno si festeggia **San Luigi Gonzaga**, educato alle armi e poi diventato gesuita, patrono della gioventù. E non dimentichiamo che il 2014 è stato proclamato da Papa Francesco **l'anno della Famiglia**. Insomma, cosa chiedere di più?
 
 
+## Perchè il matrimonio cristiano? 
+
+Vorremo testimoniare la serietà e la bellezza di questo Sacramento, che non è nè una bella chiesa nè una festa grandiosa. Abbiamo scelto di non preoccuparci troppo del vestito, degli addobbi o delle bomboniere. Chi si è sposato o sta per farlo sa quanto sia stressante organizzare una festa perfetta: ci si perde in un vortice di paganità che ti allontana dal vero senso di quel giorno (il tema; il colore dominante; il segnaposto; il paggetto; i fiori; le prove trucco; ecc). Perdonateci,ma noi abbiamo scelto di pensare a ciò che succederà dal 22 Giugno!
+
+**Condividiamo le parole che Papa Francesco ha rivolto al pellegrinaggio delle famiglie, nell'Ottobre del 2013** :
+
+"Chi si sposa nel Sacramento dice: «Prometto di esserti fedele sempre, nella gioia e nel dolore, nella salute e nella malattia, e di amarti e onorarti tutti i giorni della mia vita». Gli sposi in quel momento non sanno cosa accadrà (...) Partono, come Abramo, si mettono in cammino insieme. **E questo è il matrimonio! Partire e camminare insieme, mano nella mano, affidandosi alla grande mano del Signore.** Mano nella mano, sempre e per tutta la vita! E non fare caso a questa cultura del provvisorio, che ci taglia la vita a pezzi!
+Con questa fiducia nella fedeltà di Dio si affronta tutto, senza paura, con responsabilità. Gli sposi cristiani non sono ingenui, conoscono i problemi e i pericoli della vita. Ma non hanno paura di assumersi la loro responsabilità, davanti a Dio e alla società. Senza scappare, senza isolarsi, senza rinunciare alla missione di formare una famiglia e di mettere al mondo dei figli. - Ma oggi, Padre, è difficile… -. Certo, è difficile. Per questo ci vuole la grazia, la grazia che ci dà il Sacramento! I Sacramenti non servono a decorare la vita - ma che bel matrimonio, che bella cerimonia, che bella festa!… - Ma quella è una decorazione! E la grazia non è per decorare la vita, è per farci forti nella vita, per farci coraggiosi, per poter andare avanti! 
 
 
-### Perché ci sposiamo
 
-Donec a rutrum ligula. Nulla et diam sapien. In fringilla ante rutrum tortor cursus, id pellentesque metus dapibus. Vivamus auctor sed nibh non venenatis. Nunc vitae quam venenatis, sagittis eros sed, malesuada mi. Nunc eget elit vitae metus consequat feugiat. Vivamus at interdum ipsum, sed tincidunt velit. Suspendisse posuere arcu non faucibus dignissim. Quisque bibendum interdum purus, a tincidunt nunc lobortis at. Duis rhoncus, turpis quis bibendum mollis, lectus turpis vulputate est, sed rutrum mi lacus sed mi. Aenean ornare ut sapien ut pulvinar.
+## Il luogo della cerimonia.
 
-Sed at odio varius lacus sollicitudin porta at vitae orci. Etiam eget est in lacus dignissim scelerisque sed eget est. Nulla tristique tincidunt dolor malesuada dapibus. Quisque dictum hendrerit interdum. Sed non pretium neque, eu euismod purus. Aliquam dictum sagittis augue, sit amet lacinia tellus vestibulum condimentum. Pellentesque pharetra viverra urna non sollicitudin. Quisque luctus eget quam ac aliquam. Donec nisl elit, dictum vel est imperdiet, elementum molestie turpis. Nunc blandit odio quis turpis vestibulum accumsan. Nulla orci tortor, adipiscing at ipsum at, egestas cursus enim. Integer et adipiscing magna, sed feugiat eros.
+La cerimonia si svolgerà presso la chiesa della Comunità delle **suore francescane dell'Adveniat, S. Maria in Arce**. Il convento si trova a Rocca S.Angelo, frazione di Petrignano, a 13 km dal santuario della Porziuncola. Vi chiediamo un piccolo sforzo per raggiungere questa incantevole chiesetta del 1200, arroccata sulla collina. Per noi questo posto è ricco di significato: vi abbiamo fatto un bellissimo ritiro spirituale di coppia nell'Agosto scorso, dal quale è scaturita la scelta di sposarci e la data. 
 
+![]https://maps.google.it/
 
-## Come raggiungerci
-
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Maecenas non est nisi. Pellentesque tellus enim, consectetur vitae lorem nec, pharetra viverra erat. Praesent vitae eros dictum, pulvinar nisi et, blandit dolor. Vivamus cursus diam ac porttitor convallis. Quisque nunc erat, dictum sed volutpat nec, vulputate at sem. Vestibulum tincidunt dui nec cursus ultrices. Sed vehicula erat urna, vitae gravida nunc cursus quis. uhmm.
-
-
-![](img/mappa.png)
-
-Mauris pretium urna at convallis dapibus. Phasellus nec lorem lacinia, imperdiet neque in, malesuada nulla. Cras in vestibulum leo. Duis et dolor nec metus congue tincidunt. Etiam odio nulla, congue et tincidunt id, dignissim non libero. Pellentesque a lobortis enim, pulvinar elementum dolor. Duis rhoncus facilisis viverra. Duis tincidunt enim at sodales pretium. Maecenas id adipiscing est. Aliquam id mattis urna.
