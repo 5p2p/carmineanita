@@ -8,7 +8,7 @@ published: true
 
 ## Il perchè di una scelta.
 
-Parlarvi del nostro cammino e di tutto quello che abbiamo vissuto prima di incontrarci, sarebbe uno straordinario canto di Lode, un dolcissimo Magnificat, ma troppo lungo da descrivere qui. Padre Cornelio, che ci segue, ci ha detto di scrivere tutto. L'abbiamo fatto ed abbiamo riempito mezzo quaderno degli appunti!
+Parlarvi del nostro cammino e di tutto quello che abbiamo vissuto prima di incontrarci, sarebbe uno straordinario canto di Lode, un dolcissimo Magnificat, ma troppo lungo da descrivere qui. Padre Cornelio, che ci segue, ci ha detto di scrivere tutto. L'abbiamo fatto ed abbiamo riempito mezzo quaderno degli appunti! Non spaventatevi, non vogliamo annoiarvi! ;)
 
 Pensiamo di poter riassumere tutta la nostra storia con un bellissimo passo tratto da **La bottega dell'orefice** di Karol Wojtyla:
 
