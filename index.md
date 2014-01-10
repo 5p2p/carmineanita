@@ -36,7 +36,6 @@ Con questa fiducia nella fedeltà di Dio si affronta tutto, senza paura, con res
 
 La cerimonia si svolgerà presso la chiesa della Comunità delle **suore francescane dell'Adveniat, S. Maria in Arce**. Il convento si trova a Rocca S.Angelo, frazione di Petrignano, a 13 km dal santuario della Porziuncola. Vi chiediamo un piccolo sforzo per raggiungere questa incantevole chiesetta del 1200, arroccata sulla collina. Per noi questo posto è ricco di significato: vi abbiamo fatto un bellissimo ritiro spirituale di coppia nell'Agosto scorso, dal quale è scaturita la scelta di sposarci e la data. 
 
-https://maps.google.it/
 
 https://maps.google.it/maps?f=d&source=s_d&saddr=Santa+Maria+degli+Angeli,+PG&daddr=Comunita'+Adveniat+S+Maria+In+Arce,+Assisi,+PG&hl=it&geocode=FbIBkQIdFuW_ACmvejRAAJ0uEzEQg0ZakywICg%3BFRMNkgIdaKO_ACGLjXk6vmMVuyn54EtEFycsEzGLjXk6vmMVuw&aq=0&oq=comunit%C3%A0+adven&sll=41.008099,16.727239&sspn=2.520221,4.938354&vpsrc=0&t=h&mra=ls&ie=UTF8&z=13&layer=c&ei=1xHQUsmrNMza8gOf7oCICg&pw=2 
 
