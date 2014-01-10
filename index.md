@@ -6,13 +6,11 @@ published: true
 
 # Ci sposiamo!
 
-## La nostra testimonianza
+## Il perchè di una data...
 
-**Lorem ipsum dolor sit amet**, consectetur adipiscing elit. Maecenas non est nisi. Pellentesque tellus enim, consectetur vitae lorem nec, pharetra viverra erat. Praesent vitae eros dictum, pulvinar nisi et, blandit dolor. Vivamus cursus diam ac porttitor convallis. Quisque nunc erat, dictum sed volutpat nec, vulputate at sem. Vestibulum tincidunt dui nec cursus ultrices. Sedd vehicula erat urna, vitae gravida nunc cursus quis.
+All'inizio, la scelta della fatidica data è stata quasi "accidentale", ma, dal momento che crediamo che nulla sia veramente avvenuto per caso, scopriamo il significato di questo giorno. il 21 Giugno è il ** solstizio d'estate **, quindi il giorno più luminoso dell'anno (come ci ha ricordato la nostra amica Chiara). Si tratta di un giorno considerato sacro in molte religioni e magico per molte culture. Tra il 21 e il 22 Giugno il sole cambia direzione, simboleggiando l'inizio di un nuovo periodo di vita. Il passaggio alla bella stagione era salutato fin dall'antichità con canti e balli. E' il giorno più lungo dell'anno, perchè anche la nostra festa sia la più lunga possibile! Inoltre, in onore di Carmine, un'amica francese, Michele, ci ha detto che lo stesso giorno si celebra la ** festa della musica **. Il 21 Giugno si celebra ** San Luigi Gonzaga **, educato alle armi e poi diventato gesuita, patrono della gioventù. E non dimentichiamo che il 2014 è stato proclamato da Papa Francesco ** l'anno della Famiglia **. Insomma, cosa chiedere di più?
 
-### Come ci siamo conosciuti
 
-In nec leo nibh. Aenean sit amet enim imperdiet, venenatis orci eu, hendrerit erat. Proin convallis volutpat nisi ac dictum. Nulla et fermentum sem. Morbi erat ipsum, congue a aliquam at, ornare nec felis. Duis a orci ut eros vehicula facilisis. Cras et fringilla tortor. Nam tristique eu nisi id volutpat. Duis gravida nisi vitae sollicitudin venenatis.
 
 
 ### Perché ci sposiamo
