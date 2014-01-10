@@ -6,7 +6,16 @@ published: true
 
 # Ci sposiamo!
 
-## Il perchè di una data...
+## Il perchè di una scelta.
+
+Parlarvi del nostro cammino e di tutto quello che abbiamo vissuto prima di incontrarci, sarebbe uno straordinario canto di Lode, un dolcissimo Magnificat, ma troppo lungo da descrivere qui. Padre Cornelio, che ci segue, ci ha detto di scrivere tutto. L'abbiamo fatto ed abbiamo riempito mezzo quaderno degli appunti!
+
+Pensiamo di poter riassumere tutta la nostra storia con un bellissimo passo tratto da **La bottega dell'orefice** di Karol Wojtyla:
+
+"A un certo punto i nostri sguardi si sono incontrati – il mio e quello del vecchio Orefice. Ho avuto allora la sensazione che Lui non solo stesse sondando i nostri cuori ma che cercasse anche di versarvi dentro qualcosa.Ci siamo trovati al livello del Suo sguardo, anzi, al livello della Sua vita. La nostra intera esistenza stava davanti a Lui. Il Suo sguardo ci comunicava dei segni ma in quel momento non eravamo in grado di percepirli in tutta la loro pienezza ... — però quei segni riuscirono a penetrare fino nel fondo dei nostri cuori. E ... ci siamo messi in cammino nella direzione indicataci perché questo filo è diventato l'ordito di tutta la nostra vita".
+
+
+## Il perchè di una data.
 
 All'inizio, la scelta della fatidica data è stata quasi "accidentale", ma, dal momento che crediamo che nulla sia veramente avvenuto per caso, scopriamo il significato di questo giorno. il 21 Giugno è il **solstizio d'estate**, quindi il giorno più luminoso dell'anno (come ci ha ricordato la nostra amica Chiara). Si tratta di un giorno considerato sacro in molte religioni e magico per molte culture. Tra il 21 e il 22 Giugno il sole cambia direzione, simboleggiando l'inizio di un nuovo periodo di vita. Il passaggio alla bella stagione era salutato fin dall'antichità con canti e balli. E' il giorno più lungo dell'anno, perchè anche la nostra festa sia la più lunga possibile! Inoltre, in onore di Carmine, un'amica francese, Michele, ci ha detto che lo stesso giorno si celebra la **festa della musica**. Il 21 Giugno si festeggia **San Luigi Gonzaga**, educato alle armi e poi diventato gesuita, patrono della gioventù. E non dimentichiamo che il 2014 è stato proclamato da Papa Francesco **l'anno della Famiglia**. Insomma, cosa chiedere di più?
 
