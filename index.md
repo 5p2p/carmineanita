@@ -1,7 +1,6 @@
 ---
 title: il matrimonio di carmine e anita
 layout: page
-published: true
 ---
 
 # Ci sposiamo!
