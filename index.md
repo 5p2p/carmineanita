@@ -11,7 +11,7 @@ Il matrimonio è la nostra vocazione! Parlarvi del nostro cammino e di tutto que
 
 Pensiamo di poter riassumere tutta la nostra storia con un bellissimo passo tratto da **La bottega dell'orefice** di Karol Wojtyla:
 
-"A un certo punto i nostri sguardi si sono incontrati – il mio e quello del vecchio Orefice. Ho avuto allora la sensazione che Lui non solo stesse sondando i nostri cuori ma che cercasse anche di versarvi dentro qualcosa.Ci siamo trovati al livello del Suo sguardo, anzi, al livello della Sua vita. La nostra intera esistenza stava davanti a Lui. Il Suo sguardo ci comunicava dei segni ma in quel momento non eravamo in grado di percepirli in tutta la loro pienezza ... — però quei segni riuscirono a penetrare fino nel fondo dei nostri cuori. E ... ci siamo messi in cammino nella direzione indicataci perché questo filo è diventato l'ordito di tutta la nostra vita".
+>A un certo punto i nostri sguardi si sono incontrati – il mio e quello del vecchio Orefice. Ho avuto allora la sensazione che Lui non solo stesse sondando i nostri cuori ma che cercasse anche di versarvi dentro qualcosa.Ci siamo trovati al livello del Suo sguardo, anzi, al livello della Sua vita. La nostra intera esistenza stava davanti a Lui. Il Suo sguardo ci comunicava dei segni ma in quel momento non eravamo in grado di percepirli in tutta la loro pienezza ... — però quei segni riuscirono a penetrare fino nel fondo dei nostri cuori. E ... ci siamo messi in cammino nella direzione indicataci perché questo filo è diventato l'ordito di tutta la nostra vita.
 
 
 
