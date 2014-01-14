@@ -2,6 +2,12 @@ a, a:visited { outline: none; color: #439BBD; text-decoration: underline; }
 a:hover { outline: none; text-decoration:none; }  
 a:active, a:focus { outline: none; }
 
+
+blockquote {
+	border-left:	4px solid #D7D7D7;
+	padding-left:	10px;
+
+
 footer {
 	margin: 0 auto;
 	max-width: 35em;
@@ -46,6 +52,7 @@ body {
 	color: 			#4D4D4D;
 	margin:			0;
 	padding:		0;
+	line-height: 	1.2;
 }
 
 #main {
