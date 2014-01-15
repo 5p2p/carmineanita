@@ -76,6 +76,16 @@ body {
 	max-width:	55em;
 }
 
+#commenti {
+	margin: 0 auto;
+	max-width: 35em;
+	padding: 2em;
+	text-align: left;
+	font-size: 1.1em;
+	line-height:   1.4;
+	text-align: justify;
+}
+
 #gallery {
 	width: 			100%;
 	padding:		0em;
