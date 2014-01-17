@@ -5,7 +5,6 @@ layout: page
 
 # Ci sposiamo!
 
-![](img/invito.png)
 .
 
 ## Perchè abbiamo scelto di sposarci?
