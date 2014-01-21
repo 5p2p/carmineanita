@@ -74,6 +74,7 @@ body {
 #testo img {
 	width:	100%;
 	max-width:	55em;
+	padding: 0.2em 0;
 }
 
 #commenti {
