@@ -38,6 +38,8 @@ Con questa fiducia nella fedeltà di Dio si affronta tutto, senza paura, con res
 
 La cerimonia si svolgerà presso la chiesa della Comunità delle **suore francescane dell'Adveniat, S. Maria in Arce**. Il convento si trova a Rocca S.Angelo, frazione di Petrignano, a 13 km dal santuario della Porziuncola. Vi chiediamo un piccolo sforzo per raggiungere questa incantevole chiesetta del 1200, arroccata sulla collina. Per noi questo posto è ricco di significato: vi abbiamo fatto un bellissimo ritiro spirituale di coppia nell'Agosto scorso, dal quale è scaturita la scelta di sposarci e la data. 
 
+![](img/santamariainarce.jpg)
+![](img/santamariainarce2.jpg)
 ![](img/mappa.png)
 
 <a href="https://maps.google.it/maps?f=d&amp;source=embed&amp;saddr=Santa+Maria+degli+Angeli,+PG&amp;daddr=Comunita'+Adveniat+S+Maria+In+Arce,+Assisi,+PG&amp;hl=it&amp;geocode=FbIBkQIdFuW_ACmvejRAAJ0uEzEQg0ZakywICg%3BFRMNkgIdaKO_ACGLjXk6vmMVuyn54EtEFycsEzGLjXk6vmMVuw&amp;aq=0&amp;oq=comunit%C3%A0+adv&amp;sll=41.008099,16.727239&amp;sspn=2.520221,4.938354&amp;t=m&amp;mra=ls&amp;ie=UTF8&amp;ll=43.090704,12.555656&amp;spn=0.087752,0.145912&amp;z=12">.Visualizza la mappa ingrandita.</a>
@@ -47,3 +49,6 @@ La cerimonia si svolgerà presso la chiesa della Comunità delle **suore frances
 Stiamo organizzando un **addio al nubilato/celibato** un pò insolito,ma speciale!Ti chiediamo di pregare con noi e per noi, con la nostra testimonianza e con l'allegria della musica e dei canti. Ti aspettiamo il **20 Giugno** alle **ore 21,00** presso la cappella della casa "Laudato sii" delle **suore francescane Angeline**, in via Protomartiri Francescani 6, a Santa Maria degli Angeli. 
 
 Trovarla è facile: si tratta di un edificio che si trova alle spalle del santuario della Porziuncola.
+
+![](img/angeline.jpg)
+![](img/angeline2.jpg)
