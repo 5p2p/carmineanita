@@ -54,4 +54,4 @@ Stiamo organizzando un **addio al nubilato/celibato** un pò insolito,ma special
 Trovarla è facile: si tratta di un edificio che si trova alle spalle del santuario della Porziuncola.
 
 ![](img/angeline2.png)
-![](img/angeline.png)
+![](img/angeline.png) 
