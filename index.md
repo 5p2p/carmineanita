@@ -55,3 +55,22 @@ Trovarla è facile: si tratta di un edificio che si trova alle spalle del santua
 
 ![](img/angeline2.png)
 ![](img/angeline.png) 
+
+##I testimoni ("I compari e le commari").
+
+Abbiamo scelto due membri delle nostre famiglie d'origine:
+
+**Massimo**, fratello di Anita
+
+**Tina** , sorella di Carmine
+
+E due amici volontari, membri della nostra famiglia "spirituale":
+
+**Sonia e Vincenzo**.
+
+Abbiamo così intrecciato i fili della nostra storia, unendo il "prima" delle persone con cui siamo cresciuti e il "dopo" del nostro incontro e del fidanzamento.
+Il nostro **Grazie** va a tutti loro che continuano ad accompagnarci! 
+
+
+
+
