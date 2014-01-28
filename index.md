@@ -44,6 +44,9 @@ La cerimonia si svolgerà presso la chiesa della Comunità delle **suore frances
 
 <a href="https://maps.google.it/maps?f=d&amp;source=embed&amp;saddr=Santa+Maria+degli+Angeli,+PG&amp;daddr=Comunita'+Adveniat+S+Maria+In+Arce,+Assisi,+PG&amp;hl=it&amp;geocode=FbIBkQIdFuW_ACmvejRAAJ0uEzEQg0ZakywICg%3BFRMNkgIdaKO_ACGLjXk6vmMVuyn54EtEFycsEzGLjXk6vmMVuw&amp;aq=0&amp;oq=comunit%C3%A0+adv&amp;sll=41.008099,16.727239&amp;sspn=2.520221,4.938354&amp;t=m&amp;mra=ls&amp;ie=UTF8&amp;ll=43.090704,12.555656&amp;spn=0.087752,0.145912&amp;z=12">.Visualizza la mappa ingrandita.</a>
 
+Per saperne di più sulla comunità **delle suore dell'Adveniat Santa Maria in Arce**, cliccate sul seguente [link] (http://www.adveniatsantamariainarce.it/)
+
+
 ##La veglia.
 
 Stiamo organizzando un **addio al nubilato/celibato** un pò insolito,ma speciale!Ti chiediamo di pregare con noi e per noi, con la nostra testimonianza e con l'allegria della musica e dei canti. Ti aspettiamo il **20 Giugno** alle **ore 21,00** presso la cappella della casa "Laudato sii" delle **suore francescane Angeline**, in via Protomartiri Francescani 6, a Santa Maria degli Angeli. 
@@ -51,4 +54,23 @@ Stiamo organizzando un **addio al nubilato/celibato** un pò insolito,ma special
 Trovarla è facile: si tratta di un edificio che si trova alle spalle del santuario della Porziuncola.
 
 ![](img/angeline2.png)
-![](img/angeline.png)
+![](img/angeline.png) 
+
+##I testimoni ("I compari e le commari").
+
+Abbiamo scelto due membri delle nostre famiglie d'origine:
+
+**Massimo**, fratello di Anita
+
+**Tina** , sorella di Carmine
+
+E due amici volontari, membri della nostra famiglia "spirituale":
+
+**Sonia e Vincenzo**.
+
+Abbiamo così intrecciato i fili della nostra storia, unendo il "prima" delle persone con cui siamo cresciuti e il "dopo" del nostro incontro e del fidanzamento.
+Il nostro **Grazie** va a tutti loro che continuano ad accompagnarci! 
+
+
+
+
