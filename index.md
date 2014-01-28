@@ -62,11 +62,15 @@ Abbiamo scelto due membri delle nostre famiglie d'origine:
 
 **Massimo**, fratello di Anita
 
+![](img/massimo.jpg)
+
 **Tina** , sorella di Carmine
+![](img/tina.jpg)
 
 E due amici volontari, membri della nostra famiglia "spirituale":
 
 **Sonia e Vincenzo**.
+![](img/soniavincenzo.jpg)
 
 Abbiamo così intrecciato i fili della nostra storia, unendo il "prima" delle persone con cui siamo cresciuti e il "dopo" del nostro incontro e del fidanzamento.
 Il nostro **Grazie** va a tutti loro che continuano ad accompagnarci! 
