@@ -79,12 +79,15 @@ Il nostro **Grazie** va a tutti loro che continuano ad accompagnarci!
 
 ##Il luogo da cui uscirà la sposa.##
 
+![](img/uscita.jpg)
+
+
 Anita ha scelto di prepararsi nella casa delle **suore Francescane Missionarie del Sacro Cuore** a Santa Maria degli Angeli. 
 Più di un anno fa, queste religiose (in particolare sr Eliodora e sr Victoria) sono entrate a far parte della nostra vita, accompagnandoci con amorevole discrezione. La loro gioia e i loro sorrisi hanno illuminato e rafforzato la nostra vocazione matrimoniale. La loro casa è un rifugio accogliente e semplicissimo, come loro, che per noi sono mamme, sorelle e amiche.
 
 Il desiderio di Anita è che siano queste suore, vere donne e vere spose, a preparare la sposa nel giorno più bello. 
 
-Per saperne di più su questo Istituto di suore e sulle loro missioni, cliccate sul seguente [link] (http://www.francescane.org/) 
+Per saperne di più su questo Istituto di suore e sulle loro missioni, cliccate sul seguente [link](http://www.francescane.org/) 
 
 
 
