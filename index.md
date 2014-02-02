@@ -77,6 +77,13 @@ E due amici volontari, membri della nostra famiglia "spirituale":
 Abbiamo così intrecciato i fili della nostra storia, unendo il "prima" delle persone con cui siamo cresciuti e il "dopo" del nostro incontro e del fidanzamento.
 Il nostro **Grazie** va a tutti loro che continuano ad accompagnarci! 
 
+##Il luogo da cui uscirà la sposa##
+
+Anita ha scelto di prepararsi nella casa delle **suore Francescane Missionarie del Sacro Cuore** a Santa Maria degli Angeli. 
+Più di un anno fa, queste religiose (in particolare sr Eliodora e sr Victoria) sono entrate a far parte della nostra vita, accompagnandoci con amorevole discrezione. La loro gioia e i loro sorrisi hanno illuminato e rafforzato la nostra vocazione matrimoniale. La loro casa è un rifugio accogliente e semplicissimo, come loro, che per noi sono mamme, sorelle e amiche.
+
+Il desiderio di Anita è che siano queste suore, vere donne e vere spose, a preparare la sposa nel giorno più bello. 
+
 
 
 
