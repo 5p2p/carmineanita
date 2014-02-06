@@ -87,7 +87,7 @@ Più di un anno fa, queste religiose (in particolare sr Eliodora e sr Victoria) 
 
 Il desiderio di Anita è che siano queste suore, vere donne e vere spose, a preparare la sposa nel giorno più bello. 
 
-Per saperne di più su questo Istituto di suore e sulle loro missioni, cliccate sul seguente [link](http://www.francescane.org/) 
+Per saperne di più su questo Istituto di suore e sulle loro missioni, cliccate sul seguentee [link](http://www.francescane.org/) 
 
 
 
