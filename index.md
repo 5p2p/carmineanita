@@ -106,7 +106,7 @@ Stanno insieme nella santa assemblea, insieme alla mensa del Signore,
 insieme nella prova, insieme nella persecuzione, insieme nella gioia. 
  
 Non c'è pericolo che si nascondano qualcosa l'un l'altro, 
-che si evitino l'un l'altro, che l'uno all'altro siano di peso. 
+che si evitino l'un l'altro, che l'uno all'altro sian di peso. 
  
 Volentieri essi fan visita ai malati ed assistono i bisognosi. 
  
