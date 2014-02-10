@@ -90,5 +90,37 @@ Il desiderio di Anita è che siano queste suore, vere donne e vere spose, a prep
 Per saperne di più su questo Istituto di suore e sulle loro missioni, cliccate sul seguente [link](http://www.francescane.org/) 
 
 
-
+##La coppia cristiana##
+(Tertulliano)
+ 
+Che bella coppia formano due credenti che condividono la stessa speranza,
+ lo stesso ideale, lo stesso modo di vivere, lo stesso atteggiamento di servizio! 
+ 
+Ambedue fratelli e servi dello stesso Signore 
+senza la minima divisione nella carne e nello spirito,
+ insieme pregano, insieme s'inginocchiano e insieme fanno digiuno. 
+ 
+Si istruiscono l'un l'altro, si esortano l'un l'altro, si sostengono a vicenda. 
+ 
+Stanno insieme nella santa assemblea, insieme alla mensa del Signore, 
+insieme nella prova, insieme nella persecuzione, insieme nella gioia. 
+ 
+Non c'è pericolo che si nascondano qualcosa l'un l'altro, 
+che si evitino l'un l'altro, che l'uno all'altro sian di peso. 
+ 
+Volentieri essi fan visita ai malati ed assistono i bisognosi. 
+ 
+Fanno elemosina senza mala voglia, partecipano al sacrificio senza fretta, 
+assolvono ogni giorno i loro impegni senza sosta. 
+ 
+Ignorano i segni di croce furtivi, rendon grazie senza alcuna reticenza, 
+si benedicon senza vergogna nella voce. 
+ 
+Salmi e inni recitano a voci alterne 
+e fanno a gara a chi meglio sa cantare le lodi al suo Dio. 
+ 
+Vedendo e sentendo questo 
+Cristo gioisce e ai due sposi manda la sua pace. 
+ 
+Là dove sono i due ivi è anche Cristo.
 
