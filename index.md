@@ -132,7 +132,7 @@ Là dove sono i due ivi è anche Cristo.
 
 **1. PERDERE LA PAURA DEL FUTURO.** Cosa succederà domani? CHE CERCHERO' DI AMARLA/O ANCORA DI PIU'!
 
-**2. LA PRECARIETà, UNA BUONA ALLEATA.** Lo schermo piu' divertente della tua casa è il tuo sguardo.
+**2. LA PRECARIETA', UNA BUONA ALLEATA.** Lo schermo piu' divertente della tua casa è il tuo sguardo.
 
 **3. E' UNA COMUNIONE.** Non pensare di essere più importante, ma neanche meno.
 
