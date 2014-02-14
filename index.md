@@ -134,7 +134,7 @@ Là dove sono i due ivi è anche Cristo.
 
 **2. LA PRECARIETà, UNA BUONA ALLEATA.** Lo schermo piu' divertente della tua casa è il tuo sguardo.
 
-**3. E' UNA COMUNIONE. ** Non pensare di essere più importante, ma neanche meno.
+**3. E' UNA COMUNIONE.** Non pensare di essere più importante, ma neanche meno.
 
 **4. UN APPUNTAMENTO SACRO IN AGENDA.** Riservare del tempo per parlare in uno scenario diverso.
 
@@ -154,4 +154,4 @@ Là dove sono i due ivi è anche Cristo.
 
 **12. L'AMORE E' DONARSI.** C'è avventura solo quando si scommette tutto sull'altra persona.
 
-**13. C'è ALLEGRIA E C'è SOLORE.** E CON DIO E' PIU' FACILE!
+**13. C'è ALLEGRIA E C'è DOLORE.** E CON DIO E' PIU' FACILE!
