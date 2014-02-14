@@ -131,15 +131,27 @@ Là dove sono i due ivi è anche Cristo.
 
 
 **1. PERDERE LA PAURA DEL FUTURO.** Cosa succederà domani? CHE CERCHERO' DI AMARLA/O ANCORA DI PIU'!
+
 **2. LA PRECARIETà, UNA BUONA ALLEATA.** Lo schermo piu' divertente della tua casa è il tuo sguardo.
+
 **3. E' UNA COMUNIONE. ** Non pensare di essere più importante, ma neanche meno.
+
 **4. UN APPUNTAMENTO SACRO IN AGENDA.** Riservare del tempo per parlare in uno scenario diverso.
+
 **5. 1,2,3...?** Non ci pentiremo mai di averli tenuti.
+
 **6. E QUANDO ARRIVERANNO I MOMENTI BRUTTI?** Rileggeremo la nostra storia con il motivo per cui ci amiamo.
+
 **7. PICCOLI PROGETTI.**  Una famiglia che ha futuro pensa nel futuro.
+
 **8. E SE LE COSE NON VANNO COME SPERAVAMO?** Un sorriso e SI RICOMINCIA DI NUOVO!
+
 **9. NON IMPARERA' MAI?** No, non imparerà mai!ACCETTALO PER COME E'!
+
 **10. BALLARE E BALLARE.** Lottiamo contro la routine quando manca il desiderio.
+
 **11. COGLIERE DI SORPRESA.** Sorprendiamoci con piccoli dettagli.
+
 **12. L'AMORE E' DONARSI.** C'è avventura solo quando si scommette tutto sull'altra persona.
+
 **13. C'è ALLEGRIA E C'è SOLORE.** E CON DIO E' PIU' FACILE!
