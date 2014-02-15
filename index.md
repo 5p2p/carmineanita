@@ -154,4 +154,4 @@ Là dove sono i due ivi è anche Cristo.
 
 **12. L'AMORE E' DONARSI.** C'è avventura solo quando si scommette tutto sull'altra persona.
 
-**13. C'è ALLEGRIA E C'è DOLORE.** E CON DIO E' PIU' FACILE!
+**13. C'è ALLEGRIA E C'è DOLORE.** E CON DIO E' PIU' FACILE! 
