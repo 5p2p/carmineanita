@@ -165,6 +165,8 @@ Là dove sono i due ivi è anche Cristo.
 
 ##La "ricetta" di S. Escrivà de Balaguer##
 
+![](img/cammino.jpg)
+
 
 "**Il matrimonio è fatto perché quelli che lo contraggono vi si santifichino e santifichino gli altri per mezzo di esso**: perciò i coniugi hanno una grazia speciale, che viene conferita dal sacramento istituito da Gesù Cristo. Chi è chiamato allo stato matrimoniale, trova in esso, con la grazia di Dio, tutti i mezzi necessari per essere santo e per condurre verso il Signore le persone con cui vive."
 
