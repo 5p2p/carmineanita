@@ -157,8 +157,22 @@ Là dove sono i due ivi è anche Cristo.
 **13. C'è ALLEGRIA E C'è DOLORE.** E CON DIO E' PIU' FACILE! 
 
 
-##E queste sono le regole di Papa Francesco
+##E queste sono le regole di Papa Francesco##
 
 
 <iframe width="560" height="315" src="//www.youtube.com/embed/Qnvi6r32DBM" frameborder="0"> </iframe>
+
+
+##La "ricetta" di S. Escrivà de Balaguer##
+
+
+"**Il matrimonio è fatto perché quelli che lo contraggono vi si santifichino e santifichino gli altri per mezzo di esso**: perciò i coniugi hanno una grazia speciale, che viene conferita dal sacramento istituito da Gesù Cristo. Chi è chiamato allo stato matrimoniale, trova in esso, con la grazia di Dio, tutti i mezzi necessari per essere santo e per condurre verso il Signore le persone con cui vive."
+
+"Gli sposi cristiani devono avere la consapevolezza di essere chiamati a **santificarsi santificando**, cioè a essere apostoli; e che **il loro primo apostolato si deve realizzare nella loro casa**. Devono capire l'opera soprannaturale che è insita nella creazione di una famiglia, nell'educazione dei figli, nell'irradiazione cristiana nella società. Dalla consapevolezza della propria missione dipende gran parte dell'efficacia e del successo della loro vita: la loro felicità.
+
+**Non devono però dimenticare che il segreto della felicità coniugale è racchiuso nelle cose quotidiane, e non in fantasticherie.** Consiste nello scoprire la gioia intima del ritorno al focolare, nell'incontro affettuoso coi figli; nel lavoro di ogni giorno a cui collabora tutta la famiglia; nel buon umore dinanzi alle difficoltà, che vanno affrontate con spirito sportivo; e anche nel saper approfittare di tutti i progressi offertici dalla civiltà per rendere la casa accogliente, la vita più semplice, la formazione più efficace.
+
+Ripeto insistentemente a quanti sono stati chiamati da Dio a formare una famiglia di amarsi sempre; di amarsi con l'amore appassionato di quand'erano fidanzati. **Ha un povero concetto del matrimonio - che è un sacramento, un ideale e una vocazione - colui che pensa che l'amore finisca quando iniziano le pene e i contrattempi che la vita porta sempre con sé. È proprio allora che il legame d'affetto si rafforza.**"
+
+"Domandate audacemente al Signore questo tesoro, la virtù soprannaturale della **carità**, per esercitarla fin nei più piccoli particolari."
 
