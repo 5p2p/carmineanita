@@ -180,5 +180,11 @@ Ripeto insistentemente a quanti sono stati chiamati da Dio a formare una famigli
 
 ##...e dal 22 in poi??!!##
 
-*Cadde la pioggia, strariparono i fiumi, soffiarono i venti e si abbatterono su quella casa, ma essa non cadde, perché era fondata sulla roccia.(Mt 7,25)*
+*Chiunque ad un certo punto della vita mette su casa.
+La parte difficile è costruire una casa del cuore.
+Un posto non soltanto per dormire, ma anche per sognare.
+Un posto dove crescere una famiglia con amore, un posto non per trovare riparo dal freddo, ma un angolino tutto nostro da cui ammirare il cambiamento delle stagioni;
+un posto non semplicemente dove far passare il tempo, ma dove provare gioia per il resto della vita.*
+**(Sergio Bambarén da *Il guardiano del Faro*)**
+
 
