@@ -178,3 +178,7 @@ Ripeto insistentemente a quanti sono stati chiamati da Dio a formare una famigli
 
 "Domandate audacemente al Signore questo tesoro, la virtù soprannaturale della **carità**, per esercitarla fin nei più piccoli particolari."
 
+##...e dal 22 in poi??!!##
+
+*Cadde la pioggia, strariparono i fiumi, soffiarono i venti e si abbatterono su quella casa, ma essa non cadde, perché era fondata sulla roccia.(Mt 7,25)*
+
