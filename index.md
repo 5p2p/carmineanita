@@ -180,6 +180,9 @@ Ripeto insistentemente a quanti sono stati chiamati da Dio a formare una famigli
 
 ##...e dal 22 in poi??!!##
 
+![](img/chiavi.jpg)
+
+
 *Chiunque ad un certo punto della vita mette su casa.
 La parte difficile è costruire una casa del cuore.
 Un posto non soltanto per dormire, ma anche per sognare.
