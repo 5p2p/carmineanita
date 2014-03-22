@@ -190,4 +190,10 @@ Un posto dove crescere una famiglia con amore, un posto non per trovare riparo d
 un posto non semplicemente dove far passare il tempo, ma dove provare gioia per il resto della vita.*
 **(Sergio Bambarén da *Il guardiano del Faro*)**
 
+##La promessa##
+
+Giovedì 20 Marzo è stato il "giorno della promessa" in chiesa e in Comune....
+Qualche foto di uno dei nostri piccoli passi....
+
+Ancora ringraziamo chi ci ha fatto giungere un pensiero, un messaggio, un fiore, un regalo e chi, con grande sforzo, ha fatto di tutto per essere presente!
 
