@@ -197,3 +197,9 @@ Giovedì 20 Marzo è stato il "giorno della promessa" in chiesa e in Comune....
 Ancora ringraziamo chi ci ha fatto giungere un pensiero, un messaggio, un fiore, un regalo e chi, con grande sforzo, ha fatto di tutto per essere presente!
 
 Ecco qualche foto di uno dei nostri piccoli passi....
+
+
+![](img/pro2.jpg)
+![](img/pro3.jpg)
+![](img/pro4.jpg)
+![](img/pro5.jpg)
