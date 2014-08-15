@@ -48,4 +48,4 @@ luogo:
 
 <br> <br>
 
-## [La partecipazione](/partecipazione/)
+## [La partecipazione](/original/)
