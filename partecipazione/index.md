@@ -1,6 +1,6 @@
 ---
 title:
-layout: partecipazione
+layout: page
 ---
 
 # Ci sposiamo!
