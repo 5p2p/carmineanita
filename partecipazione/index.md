@@ -3,7 +3,7 @@ title:
 layout: page
 ---
 
-# Ci sposiamo!
+# Ci sposiamo!!
 
 ![](img/invito.png)
 
